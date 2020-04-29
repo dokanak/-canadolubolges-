@@ -1,2 +1,0 @@
-# -canadolubolges-
-son hali
